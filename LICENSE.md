@@ -1,4 +1,4 @@
-# 
+# best FreshBooks for PC plugins is the best FreshBooks for PC plugins with invoicing and receipt-capture. Safe, reliable, and optimized for maximum performance.
 
 
 
